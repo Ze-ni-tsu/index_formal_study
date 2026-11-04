@@ -1,0 +1,1 @@
+# index_formal_study
